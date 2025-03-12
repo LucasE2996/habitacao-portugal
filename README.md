@@ -76,8 +76,10 @@ Esse paradoxo – um dos menores índices de habitação pública da Europa coex
 
 <https://www.canal.parlamento.pt/h264.html?cid=8581&title=audicao-de-peticionarios-pelo-direito-a-habitacao-em-portugal>
 
+No instagram: <https://www.instagram.com/p/DHEgGkEoRC9/?utm_source=ig_web_copy_link>
+
 ## Bizarrices da situação atual
 
-### 30 pessoas a viver na mesma casa. O proprietario ganha cerca de 7000 Euros por mes.
+### 30 pessoas a viver na mesma casa. O proprietario ganha cerca de 7000 Euros por mes
 
 <https://sicnoticias.pt/pais/2024-09-14-video-pior-inferno-de-lisboa-um-apartamento-uma-casa-de-banho-e-quase-30-pessoas-a-viver-no-interior--707ecf57>

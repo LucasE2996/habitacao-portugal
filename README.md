@@ -78,6 +78,16 @@ Esse paradoxo – um dos menores índices de habitação pública da Europa coex
 
 No instagram: <https://www.instagram.com/p/DHEgGkEoRC9/?utm_source=ig_web_copy_link>
 
+#### Em resumo, quais são então as propostas do Porta a Porta?
+
+- Casas com Preços regulados e suportáveis pelas famílias, nas rendas e nos créditos;
+- Casas com Contratos de arrendamento de maior duração;
+- O fim dos despejos sem alternativa de habitação digna e a total proteção da morada de família;
+- Um parque público que responda ás necessidades do país, nunca inferior á média da União Europeia (10%);
+- Casas Com a mobilização de todos os devolutos para a oferta habitacional;
+- Casas Com o fim de todos os tipos de benefícios fiscais e apoios públicos que fomentam a especulação;
+- Casa Com a revisão de todas as licenças de alojamento turístico e a regulação do setor do turismo.
+
 ## Bizarrices da situação atual
 
 ### 30 pessoas a viver na mesma casa. O proprietario ganha cerca de 7000 Euros por mes
